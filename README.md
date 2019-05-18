@@ -7,5 +7,4 @@
   I made this app in fear, due to the polarizing topic of pineapple pizza, that I may be looked negatively on
   by the good people at the company I applied.
 
-  All this work goes to waste however, as I can't keep it secret any longer. I love pineapple on pizza!
 
